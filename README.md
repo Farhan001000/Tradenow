@@ -1,0 +1,1 @@
+Paid trading signal
